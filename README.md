@@ -19,3 +19,9 @@ https://training.dronesec.com/p/Black-Friday-2021 \
 International Cybersecurity Institute \
 https://www.icsi.co.uk/ \
 50% off
+
+HammerAI \
+https://www.hammerai.com/
+50% OFF with code **BZAOH18**
+ 
+
